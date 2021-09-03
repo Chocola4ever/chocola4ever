@@ -3,3 +3,5 @@
 - Mail: i@ruakker.cn
 - QQ: [625850057](tencent://message/?uin=625850057&Site=&Menu=yes)
 - Telegram: [Ruakker](//t.me/ruakker)
+
+&#x1f605;: `&#x1f605;`
